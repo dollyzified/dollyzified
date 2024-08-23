@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @dollyzified
-- 👀 I’m interested in game development !
-- 🌱 I’m currently learning nothing!
-- 💞️ I’m looking to collaborate on visual novels!
-- 📫 How to reach me discord ! dollyz
+- 👀 I’m interested in game design !
+- 🌱 I’m currently learning game design <3
+- 💞️ I’m looking to collaborate on just about anything!
+- 📫 How to reach me discord ! dollyz !
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love manhwa, games, and anime.
 
